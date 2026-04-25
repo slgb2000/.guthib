@@ -1,1 +1,1 @@
-# .guthib
+# You spelled it wrong ;)
